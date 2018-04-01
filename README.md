@@ -1,0 +1,2 @@
+# Lorena-Glodeviza
+Philosophy Rights
